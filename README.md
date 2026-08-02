@@ -1,1 +1,1 @@
-<img width="828" height="616" alt="Bandetto_CD" src="https://github.com/user-attachments/assets/e3563af7-1523-4549-b4c5-5662d58dd31c"/
+<img width="1200" height="750" alt="PARENTAL_ADVISORY" src="https://github.com/user-attachments/assets/a22d1de4-5984-4846-b2cd-7bd263b7d937" />
